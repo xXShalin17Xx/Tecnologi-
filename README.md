@@ -1,2 +1,2 @@
 # Tecnologi-
-Somos ua gran empresa de avances tecnologicos com ramificacciones al estudio de la pintura
+Somos una gran empresa de avances tecnologicos con ramificacciones al estudio de la pintura
